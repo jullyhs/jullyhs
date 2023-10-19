@@ -7,4 +7,4 @@
   entre em contato comigo através desse email 
 jully.hasegawa@escola.pr.gov.br  🤝
 
-!{}(https://media.tenor.com/GOabrbLMl4AAAAAd/plink-cat-plink.gif)
+![](https://media.tenor.com/GOabrbLMl4AAAAAd/plink-cat-plink.gif)
